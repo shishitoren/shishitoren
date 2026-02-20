@@ -1,6 +1,6 @@
-Ororo / Alma / Jo ,, 6teen ⠀⋆˚࿔  He/him or They/them
+Ororo / Alma / Jo ,, 6teen ⠀⋆˚࿔ ⠀He/him or They/them
 
--ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
+-ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
 ┆　┆　┆　┆　┆
 

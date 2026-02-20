@@ -1,4 +1,4 @@
-Ororo / Alma / Jo ,, 6teen ⠀⋆˚࿔ He/him or They/them
+Ororo / Alma / Jo ,, 6teen ⠀⋆˚࿔  He/him or They/them
 
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
@@ -11,3 +11,4 @@ Ororo / Alma / Jo ,, 6teen ⠀⋆˚࿔ He/him or They/them
 　　. 
 
   "тнαт'ѕ ƒιηє. ι ℓιкє ρℓαуιηg ωιтн муѕєℓƒ. ι'ℓℓ ρℓαу ωιтн муѕєℓƒ αℓℓ ∂αу ℓσηg!"
+- Oro prolly

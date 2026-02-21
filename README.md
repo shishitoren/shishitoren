@@ -28,3 +28,8 @@ Ororo / Alma / Jo ,, 6teen ⠀⋆˚࿔ ⠀He/him or They/them
 
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 
+INT : gachiakuta, windbreaker, sakamoto days fans
+
+IWEC : Janka (jabberxzanka) shippers
+
+DNI : basic dni, ppl who hates minorxminor with 1-3 years age gap, hates rareships, ships nagumoxshin

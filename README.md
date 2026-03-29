@@ -17,11 +17,11 @@ Ororo / Shiro / Jo ,, 6teen ⠀⋆˚࿔ ⠀He/him or They/them
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍  
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣  
 
-INT : gachiakuta, windbreaker, sakamoto days fans
+INT : gachiakuta, windbreaker, sakamoto days fans, jjk, knows manga/manhwas that doesn't have romance and harem (pls recommend me some)
 
 IWEC : Janka (jabberxzanka) shippers
 
-DNI : [basic dni](https://rentry.co/dnicriteriajo), ppl who hates minorxminor with 1-3 years age gap, hates rareships, ships nagumoxshin  
+DNI : [basic dni](https://rentry.co/dnicriteriajo), ppl who hates minorxminor with 1-3 years age gap, hates rareships, yumes/ships with my f/o's
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔  
 

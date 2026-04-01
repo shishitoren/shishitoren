@@ -28,5 +28,5 @@ DNI : [basic dni](https://rentry.co/dnicriteriajo), ppl who hates minorxminor wi
 ྀིྀི I am always ok with c+h!! Feel free to come sit and strike a conversation, I don't mind just sitting around in groups, even if i don't know you: feel free to come anytime  
 ྀིྀི I'm prolly always making skins, updating my <ins>READ.ME</ins>, making a strawpage site, creating a pronouns page, reading manhwas/mangas, or watching documentaries!!  
 ྀིྀི BUT one whisper will catch my focus so please whisper to grab my attention :)  
-> If i didn't respond immediately i might be afk/semi-afk ^^
+> If i didn't respond immediately i might be afk/semi-afk ^^  
 Stay nice, open minded and emphatic (emotionally or cognitive), always be a better person in this world ^^

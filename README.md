@@ -30,4 +30,5 @@ DNI : [basic dni](https://rentry.co/dnicriteriajo), ppl who hates minorxminor wi
 ྀིྀི BUT one whisper will catch my focus so please whisper to grab my attention :)  
 > If i didn't respond immediately i might be afk/semi-afk ^^  
 
-Stay nice, open minded and emphatic (emotionally or cognitive), always be a better person in this world :P
+Stay nice, open minded and emphatic (emotionally or cognitive), always be a better person in this world :P  
+⋆˚꩜.ᐟ F/O's include: Nagumo Yoichi (skmd), Rion Akao (skmd), Gaku (skmd), Shin Asakura (skmd), Driver (vtk), Crow (vtk)

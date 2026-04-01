@@ -17,7 +17,7 @@ Ororo / Shiro / Jo ,, 6teen ⠀⋆˚࿔ ⠀He/him or They/them
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍  
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣  
 
-INT : gachiakuta, windbreaker, sakamoto days fans, jjk, knows manga/manhwas that doesn't have romance and harem (pls recommend me some)
+INT : gachiakuta, windbreaker, sakamoto days, jjk fans, knows manga/manhwas that doesn't have romance and harem (pls recommend me some)
 
 IWEC : Janka (jabberxzanka) shippers
 
